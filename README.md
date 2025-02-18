@@ -1,1 +1,0 @@
-# minoumao.github.io
